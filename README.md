@@ -70,7 +70,7 @@ If you’d like to improve the project, feel free to fork the repo and submit a 
 
 📬 Contact
 
-If you have any suggestions or feedback, feel free to reach out.
+If you have any suggestions or feedback, feel free to reach out: ompriyanshu3104272091@gmail.com
 
 ⭐ Support
 
